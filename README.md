@@ -1,1 +1,0 @@
-# wehelp_week1
